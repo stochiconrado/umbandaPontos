@@ -57,3 +57,42 @@ Vamos levantar
 O cruzeiro de Jesus  
 Pro céu, pro céu  
 Pro céu da Santa Cruz  
+
+## Falange de Erê  
+
+Só quem acredita vê  
+Que essa vida é um doce  
+Mesmo se não fosse  
+Eu seria assim  
+Sou menino brincalhão  
+Encontrei a chance  
+Bem ao meu alcance  
+E agarrei pra mim  
+
+(Eu dou)  
+
+Viva Cosme e Damião, doum (doum)  
+Viva Cosme e Damião  
+Viva Cosme e Damião  
+
+O que importa é que a gente miúda  
+Me trouxe ajuda quando precisei  
+E o que prego nas minhas andanças  
+Que só as crianças me ditam a lei  
+E assim me sinto protegido  
+Ungido com a viscosidade da fé  
+Sua bênção é a presença imensa  
+Que vença com a crença quem tem seu axé  
+
+(Eu dou)  
+
+Da vida tão amargurada  
+Essa gurizada me fez renascer  
+E hoje sou cobra criada  
+Salve a ibejada Falange de Erê  
+Vinte e sete de setembro  
+Eu sempre me lembro, não esqueço de dar  
+Cocada, paçoca, suspiro, pipoca  
+Bolo, bala, bola, cuscuz e manjar  
+
+(Eu dou)  
